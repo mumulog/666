@@ -1,1 +1,1 @@
-'gunbalabala...'
+'gunbalabala'
